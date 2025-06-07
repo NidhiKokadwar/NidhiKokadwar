@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NidhiKokadwar
-- 👀 I’m interested in Biology
+- 👀 I’m interested in alot of things like research, recreational activities and more
 - 🌱 I’m currently learning B.tech Biotechnology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
